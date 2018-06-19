@@ -9,4 +9,4 @@
 風鈴が飾られる時期が一番人気です。
 
 ## てん、あるき。
->> 日々の写真は[こちら](https://www.instagram.com/tenker_7/) から
+> 日々の写真は[こちら](https://www.instagram.com/tenker_7/) から

@@ -1,6 +1,6 @@
 # てん、あるき。
 ## 埼玉 川越さんぽ
-![エビフライトライアングル](http://i.imgur.com/Jjwsc.jpg "サンプル")
+![氷川神社](https://d.kuku.lu/b1eae801ad)
 
 ### Markdown
 ### Mark
